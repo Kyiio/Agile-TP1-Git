@@ -1,9 +1,9 @@
 #Recette de bronx 
 
-3 cl Gin
-1.5 cl Jus d'orange
-1 cl  Vermouth blanc
-1.5 cl Vermouth rouge
+3 oz Gin
+1.5 oz Jus d'orange
+1 oz  Vermouth blanc
+1.5 oz Vermouth rouge
 
 Dans un shaker rempli de glaçons, verser le gin, le vermouth rouge, le vermouth sec et le jus d’orange. Fermer hermétiquement le shaker puis frapper quelques secondes. Verser la boisson dans un verre à cocktail, préalablement rafraichi, en filtrant la glace avec une passoire à cocktail.
 
