@@ -2,7 +2,7 @@
 
 Liste des ingredients:
 
-*6 cl de rhum cubain (havana club, bacardi)	 
+*12 cl de rhum cubain (havana club, bacardi)	 
 *3 cl de jus de citrons verts	 
 *7 feuilles de menthe	
 *eau gazeuse (perrier, salvetat)	 
